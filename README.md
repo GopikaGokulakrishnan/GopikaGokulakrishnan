@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @GopikaGokulakrishnan
 - 👀 I’m interested in technical related works.
-- 🌱 I’m currently learning BCA 3rd Year.
+- 🌱 I’m currently stduying MCA at LEAD College, DHini, Palakkad
 - 💞️ I’m looking to collaborate on ...
-- 📫 Reach me via email :gopu232454@gmail.com
-- 😄 Pronouns: ...
+- 📫 Reach me via email :gopikagokulakrishnana@gmail.com
+- 😄 Pronouns: She
 - ⚡ Fun fact: ...
 
 <!---

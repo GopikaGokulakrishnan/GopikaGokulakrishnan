@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GopikaGokulakrishnan
 - 👀 I’m interested in technical related works.
-- 🌱 I’m currently stduying MCA at LEAD College, DHini, Palakkad
+- 🌱 I’m currently stduying MCA at LEAD College, Dhoni, Palakkad
 - 💞️ I’m looking to collaborate on ...
 - 📫 Reach me via email :gopikagokulakrishnana@gmail.com
 - 😄 Pronouns: She
